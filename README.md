@@ -1,9 +1,9 @@
 <p align="center">
       <img src="https://media.discordapp.net/attachments/1018170841000853616/1018191737191157842/icon.png" height="150px" width="150px" ></img>
-      <br><br>
-      THE SATANIC TEMPLE
-  
-                                  APRENDI COM A DIFICULDADE QUE NÃO ERA UM SERVO PORQUE ELES NÃO ROUBAM PORTAS
+      <br>
+      THE SATANIC TEMPLE<br><br>
+  <p align="center">
+APRENDI COM A DIFICULDADE QUE NÃO ERA UM SERVO PORQUE ELES NÃO ROUBAM PORTAS
  
   </p>
  
